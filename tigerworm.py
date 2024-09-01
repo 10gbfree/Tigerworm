@@ -1,5 +1,5 @@
 #This Tool Make BY Tig3r Mat3 Junior
-#Don'nt Use This Tool Any Illigel Activity
+#Don't Use This Tool Any Illigel Activity
 #Don't Copy This Script Without Permission
 #Team - Tig3r War3
 
